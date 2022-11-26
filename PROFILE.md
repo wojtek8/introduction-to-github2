@@ -1,0 +1,1 @@
+Rozpoczynam pracę w Github
